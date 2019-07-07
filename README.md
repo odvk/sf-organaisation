@@ -1,2 +1,2 @@
-SF проект 
+SF проект
 Our Strong Organaization
